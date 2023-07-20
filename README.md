@@ -1,0 +1,1 @@
+# bilgisayar-guc-kaynagini-test-edelim
